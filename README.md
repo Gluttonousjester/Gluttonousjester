@@ -1,3 +1,6 @@
+<img width="97" height="57" alt="Tumblr-l-896241669964671" src="https://github.com/user-attachments/assets/c554809f-f238-4f6a-8573-155efa25695d" />
+
+
 ## About me! 🪓🚚
 
 [ NAME ] :: optimus/prime/Chaos/Pride/Valid.
