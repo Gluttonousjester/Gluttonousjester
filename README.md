@@ -1,4 +1,4 @@
-## About me!
+## About me! 🪓🚚
 
 [ NAME ] :: optimus/prime/Chaos/Pride/Valid.
 
