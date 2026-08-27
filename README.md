@@ -1,6 +1,7 @@
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
-<img width="760" height="380" alt="op and meg banner!" src="https://github.com/user-attachments/assets/44df2441-ee98-40fd-961a-aa9832cef92f" />
+<img width="1200" height="531" alt="op banner!" src="https://github.com/user-attachments/assets/6ddcb924-6063-4fc5-85d2-0439c4244299" />
+
 
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
@@ -17,3 +18,6 @@
 [ BIRTHDAY ] :: November 13th.
 
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
+
+
+<img width="760" height="380" alt="op and meg banner!" src="https://github.com/user-attachments/assets/44df2441-ee98-40fd-961a-aa9832cef92f" />
