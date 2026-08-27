@@ -1,4 +1,5 @@
-<img width="97" height="57" alt="Tumblr-l-896241669964671" src="https://github.com/user-attachments/assets/c554809f-f238-4f6a-8573-155efa25695d" />
+<img width="736" height="414" alt="op and meg banner!" src="https://github.com/user-attachments/assets/44df2441-ee98-40fd-961a-aa9832cef92f" />
+
 
 
 ## About me! 🪓🚚
