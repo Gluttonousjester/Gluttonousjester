@@ -6,7 +6,7 @@
 
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
-# [WARNING] :: I'm suicidal and quick to emotions, so don't be suprised if I get upset if I made someone sad or shit.
+ [WARNING] :: I'm suicidal and quick to emotions, so don't be suprised if I get upset if I made someone sad or shit.
 
 ## About me! 🪓🚚
 
