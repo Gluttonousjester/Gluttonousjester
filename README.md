@@ -6,9 +6,9 @@
 
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
- [WARNING] :: I'm suicidal and quick to emotions, so don't be suprised if I get upset if I made someone sad or shit.
+ [𝒲𝒜𝑅𝒩𝐼𝒩𝒢] :: 𝐼'𝓂 𝓈𝓊𝒾𝒸𝒾𝒹𝒶𝓁 𝒶𝓃𝒹 𝓆𝓊𝒾𝒸𝓀 𝓉𝑜 𝑒𝓂𝑜𝓉𝒾𝑜𝓃𝓈, 𝓈𝑜 𝒹𝑜𝓃'𝓉 𝒷𝑒 𝓈𝓊𝓅𝓇𝒾𝓈𝑒𝒹 𝒾𝒻 𝐼 𝑔𝑒𝓉 𝓊𝓅𝓈𝑒𝓉 𝒾𝒻 𝐼 𝓂𝒶𝒹𝑒 𝓈𝑜𝓂𝑒𝑜𝓃𝑒 𝓈𝒶𝒹 𝑜𝓇 𝓈𝒽𝒾𝓉.
 
-## About me! 🪓🚚
+## 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮! 🪓🚚
 
 [ NAME ] :: optimus/prime/Chaos/Pride/Valid.
 
