@@ -1,3 +1,7 @@
+.  .   .   .   .   .   .   .   .   . 𝓜𝓪𝓽𝓬𝓱𝓲𝓷𝓰 𝔀𝓲𝓽𝓱 𝓜𝓮𝓰𝓪𝓽𝓻𝓸𝓷 (𝓜𝓲𝓷𝓲𝓸𝓷𝓸𝓿𝓮𝓻𝓼𝓮𝓮𝓻-𝓱𝓪𝓼𝓱) .  .  .   .  .   .    .    .    .    . 
+
+<img width="500" height="500" alt="Matching sticker w outline" src="https://github.com/user-attachments/assets/22f1b44f-9a47-45fa-9dca-6a0fe4598b54" />
+
 
                                                 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
